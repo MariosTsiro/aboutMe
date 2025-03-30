@@ -27,7 +27,7 @@ Note: My repositories are private, but you can explore my projects online throug
 
 ## Let's Connect
 
-- **LinkedIn**: [Your LinkedIn Profile](#)
+- **LinkedIn**: [ https://www.linkedin.com/in/marios-tsirogiannis-48b8b914b/ ](#)
 
 ---
 
